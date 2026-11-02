@@ -1,1 +1,0 @@
-# strana-bank-memo
